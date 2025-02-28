@@ -1,18 +1,18 @@
-# The Future in Tech Entertainment - Abhisek Prusty
+# The Future in Entertainment Tech - Abhisek Prusty
 
-<img src="[https://www.linkedin.com/in/abhisek-prusty1/]" width="250">
+<img src="[https://ibb.co/jvtFKCgh]" width="250">
 
-The [Future in Entertainment](https://www.pustakai.com/) is a New age entertainment platform [LinkedIn Learning](https://www.linkedin.com/learning/) hosted by Serial Entrepreneur [Abhisek Prusty](https://www.linkedin.com/in/abhisek-prusty1/).
+The [Future in Entertainment](https://www.pustakai.com/) is a New age entertainment platform hosted by Serial Entrepreneur [Abhisek Prusty](https://www.linkedin.com/in/abhisek-prusty1/).
 
-You can [watch it on LinkedIn](https://go.raybo.org/tfit-episodes) every Thursday at 2pm ET, 11am PT. The goal of this series is to spark conversations, provide practical tips and resources to help developers work, learn, and tackle challenges related to working in the technology industry.
+You can [signup on Website](https://www.pustakai.com/).
 
-We're talking about Generative AI tools like ChatGPT, Dall-E*2, Hugging Face by talking to some of the leaders delivering the tools, strategies and technologies that make working in technology exciting. We'll discuss how they broke into technology, business strategies, ethical concerns and technical skills.
+Always inquisitive, I held the top rank in my state for 10th to 12th grade. I pursued my undergraduate education at NIT Rourkela. Following that, I gained experience as a Business Analyst, specializing in Unilever products and FMCG. My journey also includes being part of a startup and trying my hand at entrepreneurship, where I've had 2 successful years and 1.5 years of valuable lessons learned (or perhaps wasted, but with a smile). Despite briefly pursuing an MBA at Narsee Monjee, I've now accumulated a total of 11 years(June '25) of professional experience, with 6.5 years in various job roles & consulting and 3 years as an entrepreneur, and I'm currently in my 11th year( june'25) of this exciting journey.
 
-You have a chance to hear from people who are not just talking about, but building the next generation tools like Open AI and leaders who've worked for and with Fortune 500 companies like Microsoft, Google, LinkedIn,  IBM,  Open AI and more.
+GenAI-Analytics-Product-Business-Entrepreneur
 
 ---
 ## More Info
 - [The Future in Tech Page](https://www.pustakai.com/)
 - [Episode Guide](https://youtube.com/shorts/a30_2LbPpwg?si=KBgxnbjmiv0yixCS)
-- [YouTube Playlist](https://www.instagram.com/reel/DF9fUgsJUAP/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==))
+- [YouTube Playlist](https://www.instagram.com/reel/DF9fUgsJUAP/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==)
 
