@@ -1,6 +1,6 @@
 # The Future in Entertainment Tech - Abhisek Prusty
 
-<img src="[https://ibb.co/jvtFKCgh]" width="250">
+<img src="[https://media-hosting.imagekit.io//f16bcd89cc794213/Me.jpg?Expires=1835354261&Key-Pair-Id=K2ZIVPTIP2VGHC&Signature=zyYFzoPM0RkDmWcVt-K~QmkqYPnGI7LJ-D6l4n7fOUV1oncIPCWcspqVKX4lObZWiQpqg4Gbe9uBTkVjPHLtM1xHD-eZTh6ispAzWNRXQZQBdYQTE3C8z14M9ZWyaCAcfcgiEznfbl~vHR1RD~e6LWmGkBuTp-0nb2Y152Q5itLXKHucXVWZzWHOxZ5ssizFnWHkyKPLjI6E9x7nMeDk-9N6VADl5GRyy~CW3xRnccPblGpzvmaneTJp6iVuKJIsg29z23wyKp9xkfpMUssVI1OGeYVLe36rgeAoAlO~tJCzJQ2AbjgTbkHb4NLJvFMVf-HgB-TcP2YoOaPPwMxWtA__]" width="250">
 
 The [Future in Entertainment](https://www.pustakai.com/) is a New age entertainment platform hosted by Serial Entrepreneur [Abhisek Prusty](https://www.linkedin.com/in/abhisek-prusty1/).
 
